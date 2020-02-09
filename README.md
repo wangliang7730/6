@@ -1,8 +1,16 @@
 <p>
-	<span style="color:#24292E;font-family:-apple-system, BlinkMacSystemFont, &quot;font-size:16px;background-color:#FFFFFF;"><strong>这里是直播平台大全，有最全直播app下载地址。<br />
-<br />
-<br />
-	<table style="width:100%;" cellpadding="2" cellspacing="0" border="1" bordercolor="#000000">
+	<div style="text-align:center;">
+		<strong>这里是直播平台大全，有最全直播app下载地址。</strong>
+	</div>
+	<div style="text-align:center;">
+		<span style="background-color:#FFFFFF;"><b><br />
+</b></span>
+	</div>
+	<div style="text-align:center;">
+		<span style="background-color:#FFFFFF;"><b><br />
+</b></span>
+	</div>
+	<table style="text-align:center;color:#24292E;font-family:-apple-system, BlinkMacSystemFont, &quot;font-size:16px;background-color:#FFFFFF;font-weight:bold;width:100%;" cellpadding="2" cellspacing="0" border="1" bordercolor="#000000">
 		<tbody>
 			<tr>
 				<td>
@@ -125,13 +133,14 @@ https://url.cn/5Gkba08</strong><br />
 			</tr>
 		</tbody>
 	</table>
-</strong></span> 
 </p>
-<p>
+<p style="text-align:center;">
 	<br />
 </p>
-<strong><br />
-</strong> 
-<p>
+<div style="text-align:center;">
+	<b><br />
+</b>
+</div>
+<p style="text-align:center;">
 	<br />
 </p>
