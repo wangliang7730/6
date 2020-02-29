@@ -30,7 +30,7 @@ https://url.cn/5gYQV4A</strong><br />
 			<tr>
 				<td>
 					<strong>彩色直播【跳蛋】<br />
-http://caiseq.xyz/ 邀请码: XUF36</strong><br />
+http://caiseq.xyz/ 邀请码: W8726</strong><br />
 				</td>
 			</tr>
 			<tr>
