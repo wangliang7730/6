@@ -1,154 +1,45 @@
-<p>
-	<br />
+<style type="text/css">
+<!--
+.STYLE1 {font-size: medium}
+.STYLE2 {font-size: large}
+-->
+</style>
+</head>
+
+<body>
+<p class="STYLE1"><strong><span class="STYLE2">这里是直播平台大全，有最全直播app下载地址。</span>不断更新中...<br />
+  <br />
+小姐姐直播【跳蛋】升级中...</strong></p>
+<p class="STYLE1"><strong> <a href="https://gzumtec.com/?parent_icode=k7LQ">星恋直播</a></strong></p>
+<p class="STYLE1"><strong><a href="https://normal.liangmiao.site/?puid=81794132">梦恋直播</a>【跳蛋】<br />
+  <br />
+    <a href="https://4uc0.xyz/1904411">初恋直播</a><br />
+    <br />
+    <a href="https://sf6.xyz/20200324/?oem=7506bab5fe126d52">小魔女直播</a>【新】<br />
+    <br />
+    <a href="http://cscy3o.xyz">彩云直播</a> 【跳蛋】邀请码 W8726<br />
+  <br />
+    <a href="http://84566b.com">蝴蝶直播</a> 【跳蛋】邀请码 9Z56H<br />
+  <br />
+    <a href="http://1.172tu1.com/u/678217">小酒窝直播</a><br />
+  <br />
+  <a href="https://evk.xyz/s0gk.html">小棉袄直播</a><br />
+  <br />  
+<a href="http://danvta.cn/e3a0hl">咪狐直播</a></strong></p>
+<p class="STYLE1"><strong><a href="https://ym.zgdsq.net/m.html?topuserid=297882">亚米直播</a></strong></p>
+<p class="STYLE1"><strong><a href="https://lr111.xyz/share/7691321">恋人直播</a> 【跳蛋】<br />
+  <br />  
+  <a href="http://yb996.cn/4841416">小红桃直播</a>【跳蛋】</strong></p>
+<p><span class="STYLE1"><strong><a href="http://515a.tv">爱彩直播</a> 【跳蛋】邀请码 275G6<br />  
+  <br />  
+  <a href="http://88388j.com">夜色直播</a> 【跳蛋】邀请码 272RB <br />
+  <br />  
+    <a href="1366845.com">小仙女直播</a>  【跳蛋】邀请码 4654K </strong></span><br />
+  <br />
 </p>
-<div style="text-align:center;">
-	<strong>这里是直播平台大全，有最全直播app下载地址。</strong> 
-</div>
-<div style="text-align:center;">
-	<span style="background-color:#FFFFFF;"><b><br />
-</b></span> 
-</div>
-<div style="text-align:center;">
-	<span style="background-color:#FFFFFF;"><b><br />
-</b></span> 
-</div>
-<table style="text-align:center;color:#24292E;font-family:-apple-system, BlinkMacSystemFont, &quot;font-size:16px;background-color:#FFFFFF;font-weight:bold;width:100%;" cellpadding="2" cellspacing="0" border="1" bordercolor="#000000">
-	<tbody>
-		<tr>
-			<td>
-				<strong>小姐姐直播【跳蛋】<br />
-<a href="https://url.cn/59kx0R7" target="_blank">https://url.cn/59kx0R7</a><br />
-<a href="https://url.cn/5o2Zw5K" target="_blank">https://url.cn/5o2Zw5K</a><br />
-<a href="https://url.cn/5ce2Rzs" target="_blank">https://url.cn/5ce2Rzs</a></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong>樱花直播【跳蛋】<br />
-<a href="https://url.cn/5gYQV4A" target="_blank">https://url.cn/5gYQV4A</a></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong>彩色直播【跳蛋】<br />
-<a href="http://caiseq.xyz/" target="_blank">http://caiseq.xyz/</a> 邀请码: W8726</strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong>云上花直播【跳蛋】<br />
-<a href="https://url.cn/5V9jsxI" target="_blank">https://url.cn/5V9jsxI</a></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				咪咪直播【跳蛋】<br />
-<a href="http://885481.xyz" target="_blank"><span style="color:#24292E;">http://88548</span>1.xyz</a> 邀请码：3EAGS
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong>蝴蝶直播【跳蛋】<br />
-</strong> 
-				<p style="color:#24292E;text-align:center;">
-					<strong><a href="http://74566z.com/" target="_blank">http://74566z.com</a>&nbsp;邀请码：BB6KY</strong> 
-				</p>
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong><strong>星恋直播 【高颜值】<br />
-<a href="https://url.cn/50qObu9" target="_blank">https://url.cn/50qObu9</a></strong></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong><strong>小棉袄直播<br />
-<a href="https://url.cn/5PbLwH9" target="_blank">https://url.cn/5PbLwH9</a></strong></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong><strong>小酒窝直播<br />
-<a href="https://url.cn/5gpmt2H" target="_blank">https://url.cn/5gpmt2H</a></strong></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong><strong><strong>小狐狸<br />
-<a href="https://url.cn/5grodaX" target="_blank">https://url.cn/5grodaX</a></strong></strong></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong><strong>咪狐直播<br />
-<a href="http://url.cn/5gR8uU8" target="_blank">http://url.cn/5gR8uU8</a></strong></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong><strong>亚米直播<br />
-<a href="https://url.cn/5NwkdS3" target="_blank">https://url.cn/5NwkdS3</a></strong></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<p>
-					<strong><strong>花粥直播<br />
-<a href="https://url.cn/5gchX9W" target="_blank">https://url.cn/5gchX9W</a></strong><a href="https://url.cn/5gchX9W" target="_blank"></a></strong> 
-				</p>
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong>大波浪直播<br />
-<a href="https://url.cn/5nbQMe6" target="_blank">https://url.cn/5nbQMe6</a></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong>红高粱<br />
-<a href="https://url.cn/5XcoLxz" target="_blank">https://url.cn/5XcoLxz</a></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<strong>小妖精<br />
-<a href="https://url.cn/5Gkba08" target="_blank">https://url.cn/5Gkba08</a></strong><br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<br />
-			</td>
-		</tr>
-		<tr>
-			<td>
-				<br />
-			</td>
-		</tr>
-	</tbody>
-</table>
-<p>
-	<br />
+<p><br />
+  <br />
+  <br />
 </p>
-<p style="text-align:center;">
-	<br />
-</p>
-<div style="text-align:center;">
-	<b><br />
-</b> 
-</div>
-<p style="text-align:center;">
-	<br />
-</p>
+</body>
+</html>
