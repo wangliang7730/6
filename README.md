@@ -2,7 +2,6 @@
 .STYLE1 {font-size: medium}
 .STYLE2 {font-size: large}
 -->
-</style>
 </head>
 
 <body>
