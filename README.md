@@ -15,7 +15,7 @@
     <br />
     <a href="https://sf6.xyz/20200324/?oem=7506bab5fe126d52">小魔女直播</a>【新】<br />
     <br />
-    <a href="http://cscy3o.xyz">彩云直播</a> 【跳蛋】邀请码 W8726<br />
+    <a href="http://cscy3o.xyz">彩云直播</a> 【跳蛋】邀请码W8726<br />
   <br />
     <a href="http://84566b.com">蝴蝶直播</a> 【跳蛋】邀请码 9Z56H<br />
   <br />
