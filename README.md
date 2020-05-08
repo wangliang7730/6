@@ -154,7 +154,6 @@
     <td>&nbsp;</td>
   </tr>
 </table><br />
-<script type="text/javascript" src="//js.users.51.la/20783249.js"></script>
 <p class="STYLE1"><br />
   <br />
   <br />
