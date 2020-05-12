@@ -13,7 +13,7 @@
     <td><strong><a href="https://normal.liangmiao.site/?puid=81794132">梦恋直播</a>【跳蛋】</strong></td>
   </tr>
   <tr>
-    <td><strong><a href="https://4uc0.xyz/1904411">初恋直播</a></strong></td>
+    <td><strong><a href="https://g1b.xyz/emn7.html">初恋直播</a></strong></td>
   </tr>
   <tr>
     <td><strong><a href="https://sf6.xyz/20200324/?oem=7506bab5fe126d52">小魔女直播</a>【新】</strong></td>
