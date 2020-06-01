@@ -45,7 +45,7 @@
     <td><strong><a href="https://ym.zgdsq.net/m.html?topuserid=297882">亚米直播</a></strong></td>
   </tr>
   <tr>
-    <td><strong><a href="https://lr111.xyz/share/7691321">恋人直播</a> 【跳蛋】</strong></td>
+    <td><strong><a href="http://lr111.xyz/share/7691321">恋人直播</a> 【跳蛋】</strong></td>
   </tr>
   <tr>
     <td><strong><a href="http://yb996.cn/4841416">小红桃直播</a>【跳蛋】</strong></td>
