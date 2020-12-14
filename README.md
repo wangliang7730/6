@@ -6,10 +6,10 @@
 我们承诺不会放置恶意程序，请您放心安装。。</p>
 <table width="242" border="1">
   <tr>
-    <td width="232"><strong><a href="http://8cuf.vip/1904411">小奶猫直播</a>【跳蛋】原小姐姐</strong></td>
+    <td width="232"><strong><a href="http://9ejr.xyz/1904411">小奶猫直播</a>【跳蛋】原小姐姐</strong></td>
   </tr>
   <tr>
-    <td><strong><a href="http://hqel.vip/1904411">小奶猫直播 </a>备用下载</strong></td>
+    <td><strong><a href="http://l8xt.xyz/1904411">小奶猫直播 </a>备用下载</strong></td>
   </tr>
   <tr>
     <td><a href="http://22051"><strong>爱爱你直播</strong></a>  <strong>【跳蛋】邀请码V767N</strong></td>
