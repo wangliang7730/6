@@ -12,7 +12,7 @@
     <td><strong><a href="http://l8xt.xyz/1904411">小奶猫直播 </a>备用下载</strong></td>
   </tr>
   <tr>
-    <td><a href="http://22051"><strong>爱爱你直播</strong></a>  <strong>【跳蛋】邀请码V767N</strong></td>
+    <td><a href="http://1230.29yz.cc/?1609343867!http%3A%2F%2F884dl.tv"><strong>Love直播</strong></a>  <strong>【跳蛋】</strong></td>
   </tr>
   <tr>
     <td><strong><a href="https://normal.liangmiao.site/?puid=81794132">MM直播</a> 推荐【跳蛋】邀请码<a href="https://g1b.xyz/emn7.html"></a></strong></td>
